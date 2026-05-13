@@ -1,4 +1,4 @@
-
+Get the ultimate Magnetic for macOS automation with Magnetic for macOS secure Automation - automated-tasks and file-indexing. Featuring automated-tasks and file-indexing, it's the
 
 
 
